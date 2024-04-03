@@ -5,3 +5,4 @@
 
 *além de melhorar nossas oportunidades de carreira também enriquece nossa vida de muitas outras maneiras. nós torna mais criativos, mais adaptáveis e mais capazes de lidar com situações complexas. nós ajuda a desenvolver uma mentalidade de crescimento, onde vemos os desafios como oportunidades de aprendizado e crescimento pessoal.*
 
+
